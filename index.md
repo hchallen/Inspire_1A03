@@ -37,5 +37,10 @@ Positives for Coding| Negatives for Coding
 It's really fun! | You may become addicted
 You will make a lot of money | Friends and family will ask for money
 
+
 *emoji time*
 :yum:
+
+**Add some code**
+
+
