@@ -38,4 +38,4 @@ It's really fun! | You may become addicted
 You will make a lot of money | Friends and family will ask for money
 
 *emoji time*
-:grinning:
+:yum:
